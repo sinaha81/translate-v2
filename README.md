@@ -1,6 +1,6 @@
 
 
-**[https://itsyebekhe.github.io/subtitle-translate/](https://itsyebekhe.github.io/subtitle-translate/)**
+**[https://itsyebekhe.github.io/subtitle-translate/](https://sinaha81.github.io/translate-v2/)**
 
 ### ویژگی‌ها
 
